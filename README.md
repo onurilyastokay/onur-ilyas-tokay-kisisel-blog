@@ -1,0 +1,1 @@
+[Onur İlyas Tokay - Kişisel Blog](https://onurilyastokay.com.tr/)
